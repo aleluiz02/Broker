@@ -1,0 +1,1 @@
+O titular do precatório faleceu, ou a pessoa diz só que o precatório é do pai, mãe ou cônjuge sem dizer se está vivo (este agente confirma). Também: herança, inventário ou espólio. Não use se o precatório está no nome da própria pessoa ou se ela já disse que o titular está vivo (vai para o CREDOR).

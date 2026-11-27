@@ -1,0 +1,1 @@
+Pessoa quer vender ou antecipar um precatório que está no nome dela, ou pergunta quanto a Recall paga pelo precatório dela.

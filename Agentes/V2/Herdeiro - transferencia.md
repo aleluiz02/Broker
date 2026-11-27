@@ -1,0 +1,1 @@
+O titular do precatório faleceu: a pessoa diz que o precatório era do pai, mãe, cônjuge ou outro familiar falecido, ou fala de herança, inventário ou espólio. Não use se o precatório está no nome da própria pessoa.

@@ -1,0 +1,1 @@
+Pessoa herdou um precatório: o titular faleceu, fala de inventário, espólio ou de precatório do pai, mãe ou cônjuge.

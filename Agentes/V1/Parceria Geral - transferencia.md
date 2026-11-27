@@ -1,0 +1,1 @@
+Não é advogado(a) nem credor/herdeiro: escritório não jurídico (contabilidade, cobrança), banco, fundo, investidor, empresa, captador, parceria sem ser advogado ou assunto que não se encaixa nos outros agentes.

@@ -1,0 +1,1 @@
+Atende só as mensagens do Instagram e leva a pessoa para o WhatsApp. NUNCA transfira para este agente.

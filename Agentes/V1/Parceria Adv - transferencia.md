@@ -1,0 +1,1 @@
+Pessoa diz que é advogado(a) ou de escritório de advocacia, fala de OAB, honorários ou clientes com precatório.
